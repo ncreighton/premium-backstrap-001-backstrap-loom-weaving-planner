@@ -1,0 +1,2 @@
+# premium-backstrap-001-backstrap-loom-weaving-planner
+Tangled thread notes and scattered pattern sketches stealing your creative flow? The Backstrap Loom Weaving Planner transforms your Notion workspace into a command center for every weaving project—from pattern design to finished piece tracking.  Stop juggling multiple apps and notebooks. This comprehensive Notion template organizes your backstrap l
